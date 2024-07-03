@@ -35,6 +35,6 @@
   
  ✌️ &emsp; Enjoy to jailbreak technology <br/><br/>
  ❤️ &emsp; Learning new features that could be unlocked of devices<br/><br/>
-  &emsp; Apple fan <br/><br/>
+  &emsp; Apple fan <br/><br/>
 </p>
 
